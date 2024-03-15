@@ -1,4 +1,4 @@
-Hey there 
+Hey there 🫡
 
 ![Image alt](https://github.com/Vandannda/Vandannda/blob/main/негер.gif)
 
